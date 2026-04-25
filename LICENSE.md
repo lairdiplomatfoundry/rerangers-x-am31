@@ -1,4 +1,4 @@
-
+re:rangers x Scripts premium is the best re:rangers x Script, featuring no cooldown and undetectable. Safe and powerful for all your needs.
 
 
 
